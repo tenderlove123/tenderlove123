@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tenderlove123
-- 👀 I’m interested in tender things. 
-- 🌱 I’m currently learning to spy
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in slow...TENDER THINGS 
+- 🌱 I’m currently learning to..... 😘
+- 💞️ I’m looking to collaborate on ...😏😏 MUST I?
 - 📫 How to reach me ... payrebecca881@gmail.com 
 
 <!---
